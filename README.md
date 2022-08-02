@@ -1,0 +1,2 @@
+# repositoriojueves
+ejercicio cv 
